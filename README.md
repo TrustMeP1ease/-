@@ -1,6 +1,6 @@
-어라?
-지금 이걸 보고있는 당신은 제가 누구고 뭐하는사람인지 궁금해하는사람 혹은 제가 연락이 안되서 여기까지 찾아온게 아닐까 생각이 듭니다!
-연락이 안되는 이유는 잠시나마 제 혼자만의 시간을 원해서 그런걸겁니다. 기다려 주실수 있죠?
-사람마다 휴식의 기간은 필요하잖아요?
-저는 당신을 싫어하지 않습니다.
+hmm?
+I wonder if you're watching this right now are wondering who I am and what I'm doing, or you've come all the way here because I can't reach you!
+The reason why I can't reach you is because I want to have time alone for a while. Can you wait for me?
+Everyone needs a period of rest, right?
+I'm not hate you.
 # -
